@@ -59,3 +59,4 @@ If you have been referred for an X-ray, Book Bulk Billed X-Rays at Crystal Radio
 Please ensure that you have your Medicare card and referral with you and pop into our location for your consultation. If you have any questions at all, please feel free to contact us at (02) 8315 8292 as we are here to help.
 Additional Recommendation
 “This information is general in nature and does not replace medical advice. Suitability for procedures should be discussed with your referring doctor or specialist.
+
